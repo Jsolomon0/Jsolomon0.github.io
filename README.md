@@ -1,1 +1,0 @@
-# Jsolomon0.github.io
